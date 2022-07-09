@@ -1,3 +1,5 @@
+![Mr Kelma_Logo III 3200x1080](https://user-images.githubusercontent.com/98012564/178111555-e81d8dd6-420c-4499-aceb-446ce392cbac.png)
+
 ### Hi there 👋
 
 <!--
