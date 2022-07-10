@@ -1,4 +1,4 @@
-![Mr Kelma_Logo III 3200x1080](https://user-images.githubusercontent.com/98012564/178111555-e81d8dd6-420c-4499-aceb-446ce392cbac.png)
+![Mr Kelma_Logo III 3200x800](https://user-images.githubusercontent.com/98012564/178142179-10109389-1c14-4c94-855e-d3ca480e6e17.png)
 
 ### Hi there 👋
 
